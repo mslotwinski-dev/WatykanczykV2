@@ -1,0 +1,1 @@
+For legal reasons, I can't put the memes with John Paul II here, you have to choose them yourself and paste them here
